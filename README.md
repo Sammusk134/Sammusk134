@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything Technology
 - 📫 How to reach me... on my email
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ... h
+- ⚡ Fun fact: ... help yourself first before others.
 
 <!---
 Sammusk134/Sammusk134 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
